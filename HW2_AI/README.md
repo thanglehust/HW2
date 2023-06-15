@@ -1,2 +1,1 @@
-# Homework 2
-Đoàn Tiến Đạt - 20192746
+Lê Đức Thắng - 20193178
